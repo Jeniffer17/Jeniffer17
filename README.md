@@ -1,16 +1,15 @@
-### Hi there 👋
+### boa vindas 💕
 
-<!--
-**Jeniffer17/Jeniffer17** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é Jeni Marton 
+- Estou tentando entender isso ainda 
 
-Here are some ideas to get you started:
+_Entre em contato_
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+-Jeniffer.marton.costa@escola.pr.gov.br
+
+-@jeniimarton
+
+
+![...](https://media.tenor.com/qkfRN4zt27YAAAAC/gif.gif)
+
+
