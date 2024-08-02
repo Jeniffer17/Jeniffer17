@@ -1,4 +1,4 @@
-boa vindas 💕
+boas vindas 💕
 
 Meu nome é Jeni Marton 
 - Estou tentando entender isso ainda 
