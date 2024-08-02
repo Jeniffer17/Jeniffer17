@@ -10,6 +10,6 @@ _Entre em contato_
 -@jeniimarton
 
 
-![...](https://media.tenor.com/qkfRN4zt27YAAAAC/gif.gif)
+
 
 
